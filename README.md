@@ -1,2 +1,0 @@
-# LUXURY
-cheat roblox luxury
